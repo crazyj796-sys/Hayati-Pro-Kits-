@@ -7,3 +7,4 @@ The flagship Hayati Pro Ultra Disposable Vape provides up to 6000 puffs, featuri
 ✅ Smooth and satisfying nic salt experience
 ✅ No maintenance, no hassle
 Upgrade your vape routine with Hayati Pro Ultra – the perfect fusion of flavour, convenience, and performance.
+https://vapourse.co.uk/collections/hayati-pro-ultra
