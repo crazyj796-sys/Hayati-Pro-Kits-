@@ -8,3 +8,8 @@ The flagship Hayati Pro Ultra Disposable Vape provides up to 6000 puffs, featuri
 ✅ No maintenance, no hassle
 Upgrade your vape routine with Hayati Pro Ultra – the perfect fusion of flavour, convenience, and performance.
 https://vapourse.co.uk/collections/hayati-pro-ultra
+Mastering the Pod Mod: A Complete Step-by-Step Guide on How to Use Modern Vape Devices
+Transitioning to vaping or upgrading from single-use disposables to a refillable pod system can feel confusing with all the buttons, coil resistances, and e-liquid ratios available. However, modern pod mod platforms are designed to make high-performance vaping simple, consistent, and satisfying.
+
+Whether you are aiming for a tight, cigarette-like draw or dense, flavorful vapor clouds, understanding the mechanics of your device is the key to getting the best experience. Here is a complete guide on how to set up, operate, and maintain a modern vape kit.
+https://vapourse.co.uk/products/mogo-mogo-lychee-crystal-pro-max-15000-disposable-vape-wga-led-display-box-of-18
